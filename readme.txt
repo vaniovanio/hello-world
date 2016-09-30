@@ -1,1 +1,1 @@
-tuka ima - tuka nema
+more more more
